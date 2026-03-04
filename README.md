@@ -33,3 +33,5 @@ Fique à vontade para explorar!
 
 Me chamo Gabriel Leão, e sou apenas um estudante!
 Obrigado pelas aulas Felipão e DIO.
+
+|https://notebooklm.google.com/notebook/c85c8039-d850-4fb3-a861-ffbda315cbd7|
